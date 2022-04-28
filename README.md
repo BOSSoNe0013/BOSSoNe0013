@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BOSSoNe0013
 - 👀 I’m interested in Computers, Photography, Music and Games
 - 📫 How to reach me on :
-    * My website https://bproject.com
+    * My website https://b1project.com
     * Facebook https://www.facebook.com/TheB1Project
     * Twitter @BOSSoNe0013
 
